@@ -16,4 +16,4 @@
 
 ## 📫 Contact Me
 - 📧 Email: surajkadam@06200@gmail.com
-- 🌐 [Fiverr Profile](https://www.fiverr.com/@kdm_design_art)
+- 🌐 [Fiverr Profile](https://www.fiverr.com/kdm_design_art)
