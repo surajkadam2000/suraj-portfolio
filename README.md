@@ -1,4 +1,4 @@
-# Hello! I'm Suraj Kadam (aka Spacetra)
+# Hello! I'm Suraj Kadam 
 
 🖌️ Logo & Digital Designer | Specializing in Sci-fi, Neon & Futuristic Themes  
 ⚡ I create bold, imaginative logos using Canva, Illustrator, and Procreate  
@@ -15,5 +15,5 @@
 - Photoshop
 
 ## 📫 Contact Me
-- 📧 Email: surajkadam@06200@gmail.com
+- 📧 Email:surajkadam@06200@gmail.com
 - 🌐 [Fiverr Profile](https://www.fiverr.com/kdm_design_art)
